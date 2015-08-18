@@ -1,0 +1,3 @@
+Em 2012, serão realizadas as eleições municipais tanto para o âmbito do poder executivo (prefeitos) quanto para o poder legislativo (vereadores). Para candidatos torna-se indispensável o uso da tecnologia e redes sociais durante o período eleitoral, bem como para os meses que o antecedem.
+
+> Além disso, o conhecimento técnico sobre organização de campanhas eleitorais, comunicação eleitoral na internet e sobre a legislação que regulamenta a disputa, aproxima a campanha do candidato com seu eleitorado.
